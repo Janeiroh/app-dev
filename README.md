@@ -7,6 +7,7 @@ My first respiratory
 3. haikyu.
 4. bleach
 5. solo leveling
-   they are all fun to watch 😄
+   
+   - they are all fun to watch 😄
    
    
